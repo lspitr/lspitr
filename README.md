@@ -1,3 +1,4 @@
-dysphorias a bitch - they/them
+dysphorias a bitch
 
-just a silly persson that makes minecraft stuff for fun
+Admin @ https://www.daktoinc.co.uk
+Owner @ https://modrinth.com/modpack/better-vanillap
