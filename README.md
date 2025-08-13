@@ -1,4 +1,4 @@
-dysphorias a bitch
+🏳️‍⚧️ just a girl who uses nix
 
-Admin @ https://www.daktoinc.co.uk
-Owner @ https://modrinth.com/modpack/better-vanillap
+
+Visit https://getvanilla.lspiter.org/ for the best Minecraft Survival Modpack!
